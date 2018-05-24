@@ -1,0 +1,1 @@
+# stupidyan.github.io
